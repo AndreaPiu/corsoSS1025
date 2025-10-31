@@ -7,4 +7,4 @@ le vere ed uniche pennette alla carbonara
 * pennette 
 * uova 
 * guanciale 
-* panna 
+* pecorino romano  
