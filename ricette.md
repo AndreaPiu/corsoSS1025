@@ -10,4 +10,4 @@
 * pennette alla carbonara 
 * risotto alla milanese 
 * Pennette alla carbonara   
-
+* minestrone 
